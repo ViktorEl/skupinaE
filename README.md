@@ -1,0 +1,2 @@
+# skupinaE
+subory k pisomke
